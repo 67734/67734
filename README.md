@@ -1,0 +1,7 @@
+- 👋 Hi, I’m brandon
+- 👀 I’m interested in getting rid of securly
+- 🌱 I’m currently learning how to get rid of securly
+- 💞️ I’m looking to collaborate on getting rid of securly
+- 📫 How to reach me github
+- 😄 Pronouns: idc
+- ⚡ Fun fact: pineapple
